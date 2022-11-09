@@ -1,1 +1,1 @@
-# ScanningLabor in the Internet Archive
+# Scanning Labor in the Internet Archive
